@@ -1,0 +1,1 @@
+# inform-blok-sxema
